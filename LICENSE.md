@@ -1,4 +1,4 @@
-#  
+#  rivals Script rare offers the most advanced rivals Script, with no cooldown and auto-sell. Perfect for dominating any match.
 
 
 
